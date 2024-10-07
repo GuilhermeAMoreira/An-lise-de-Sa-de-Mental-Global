@@ -1,0 +1,1 @@
+# An-lise-de-Sa-de-Mental-Global
